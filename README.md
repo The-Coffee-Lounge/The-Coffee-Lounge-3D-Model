@@ -1,0 +1,1 @@
+![Picture 1 (OUTSIDE)]("https://raw.githubusercontent.com/The-Coffee-Lounge/The-Coffee-Lounge-3D-Model/master/renders/TCL - Picture 1 (OUTSIDE).png")
